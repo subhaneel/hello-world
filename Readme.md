@@ -1,3 +1,3 @@
-# Subhaneel mukherjeew magi
+# Subhaneel mukherjee
 
 #neel
